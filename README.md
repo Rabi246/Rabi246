@@ -26,4 +26,4 @@ Computer Science student at **Cal State LA**, building things in **VR**, **full-
 
 ### Contact
 
-[LinkedIn](www.linkedin.com/in/samantha-vazquez-310a19248) · samanthav56ist@gmail.com
+[LinkedIn](https://www.linkedin.com/in/samantha-vazquez-310a19248) · samanthav56ist@gmail.com
